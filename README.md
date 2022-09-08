@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kejidefensi
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning how to running
+- 🌱 I’m currently learning how to run more faster i am a runner
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
